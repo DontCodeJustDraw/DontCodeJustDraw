@@ -2,7 +2,7 @@
 - 👀 I’m interested in drawing
 - 🌱 I’m currently learning drawing
 - 💞️ I’m looking to collaborate on drawing
-- 📫 How to reach me don't
+- 📫 Reach me on email
 - 😄 Pronouns: His majesty drawer of things
 - ⚡ Fun fact: I like drawing
 
